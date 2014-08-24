@@ -1,3 +1,3 @@
-Tudo novo aqui e p·
+Tudo novo aqui e p√°
 
-#COrolho
+#Baralho
